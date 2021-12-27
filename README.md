@@ -1,1 +1,1 @@
-hi
+Fuck Afghanistan
